@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+![](https://tenor.com/pt-BR/view/love-hearts-beautiful-shy-gif-10065103)
